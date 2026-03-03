@@ -5,7 +5,7 @@
 ### here is some things that move my heart (some things that I like "dont get me wrong")
 * #### japanese culture
 ![This is an alt text.](https://www.zojirushi.com/blog/wp-content/uploads/2016/12/onigiribento.jpg")
-##### just look at that, doesn't it look delicious???
+##### just look at that, doesn't it look delicious??? I think the first sentences that I would say when I arrive there would be onigiri pls
 
 
 
