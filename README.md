@@ -2,9 +2,10 @@
 ### My name is Milton Jesid Ortega Villa and would be a glad to meet you
 #### I'm actually working on nothing because I already finish an ATM, so I need to chill out a little bit (dude I'm bald at my seventeen😔)
 #
-### here is somethings that move my heart (somethings that I like "dont get me wrong")
+### here is some things that move my heart (some things that I like "dont get me wrong")
 * #### japanese culture
 ![This is an alt text.](https://www.zojirushi.com/blog/wp-content/uploads/2016/12/onigiribento.jpg")
+##### just look at that, doesn't it look delicious???
 
 
 
