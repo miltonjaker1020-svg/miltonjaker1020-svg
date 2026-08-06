@@ -1,7 +1,6 @@
-## I have to keep in mind log out once finsih the shift 9/marzo/2026
-## 12/mar milton still whitout cheking his own github profile
 
-<!--## Hi there 👋
+
+## Hi there 👋
 ### My name is Milton Jesid Ortega Villa and would be a glad to meet you
 #### I'm actually working on nothing because I already finish an ATM, so I need to chill out a little bit (dude I'm bald at my seventeen😔)
 #
@@ -13,7 +12,7 @@
 * #### music
 
 
-<!--
+
 **miltonjaker1020-svg/miltonjaker1020-svg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
